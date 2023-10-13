@@ -1,2 +1,2 @@
 # bimalitani.github.io
-Author- Bimak Itani
+Author- Bimal Itani
